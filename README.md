@@ -1,0 +1,1 @@
+DATO: hay canciones que estan mas de una vez porque existe mas de una version de los albumes, por ejemplo version deluxe y final (las cancioones son las mismas).
